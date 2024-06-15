@@ -2,7 +2,7 @@
 # Tapswap Bot
 Auto Tap Tapswap Bot  
 
-Join Here : [TapswapBot](https://t.me/tapswap_bot?start=r_968480911)
+Join Here : [TapswapBot](https://bit.ly/45dA4ap)
 
 ## CHR | QUERY FORMAT INIT DATANYA. BALIK CHR LAGI
 
